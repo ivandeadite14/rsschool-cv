@@ -20,7 +20,7 @@ Nope
 
 ## Work experience
 
-lack
+Lack
 
 ## Education 
 
